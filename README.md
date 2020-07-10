@@ -1,4 +1,5 @@
-### Hi there 👋
+![Graphic Design is my passion](https://i.kym-cdn.com/photos/images/newsfeed/001/018/866/e44.png "Graphic design is my passion")
+
 
 <!--
 **CoreyGinnivan/CoreyGinnivan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
