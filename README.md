@@ -1,4 +1,8 @@
-![Graphic Design is my passion](https://i.kym-cdn.com/photos/images/newsfeed/001/018/866/e44.png "Graphic design is my passion")
+
+## My whole design career comes down to this one thing
+
+
+https://github.com/CoreyGinnivan/CoreyGinnivan/assets/7619810/8e57ac5c-662a-4db9-be01-4691eb2802ad
 
 
 <!--
